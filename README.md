@@ -120,6 +120,12 @@ There is one natural rock formation Nandi which one cannot miss and shows the pr
 
 ## OUTPUT
 
+![Screenshot 2024-12-06 130503](https://github.com/user-attachments/assets/39c6fc61-1ccc-43ce-9c97-a8da19a49a65)
+![Screenshot 2024-12-06 131222](https://github.com/user-attachments/assets/7cc8c7bd-356f-4cbb-b09c-2da175ea20cf)
+![Screenshot 2024-12-06 131234](https://github.com/user-attachments/assets/7e6ba26c-561d-4a9f-ba07-e7f1a98f9d28)
+![Screenshot 2024-12-06 131249](https://github.com/user-attachments/assets/decb6688-b06a-4006-ae99-66688f4e5c1b)
+
+
 
 
 
